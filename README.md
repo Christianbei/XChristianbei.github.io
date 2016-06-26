@@ -1,1 +1,2 @@
-# Christianbei.github.io
+# 欢迎大家来到我的博客
+用心理学塑造更强的自我
